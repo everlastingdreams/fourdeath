@@ -17,7 +17,7 @@ ohyes i love my twin @morguekitti.
 i love my partners soo much:3🩵!!!!WAAHHH!!!!
 ![495dc10c949da16351f8bd7851d8d907](https://github.com/user-attachments/assets/3b391249-70db-47dc-8bb7-b92305f3b2e1)
 
-” ***you dont want want people on your crew. do you?*** “
+” ***you dont want weak people on your crew. do you?*** “
 
 -------------------
 
